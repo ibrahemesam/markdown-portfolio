@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+#list of unrelated things:-
+- killing CC
+- over killing CC
+- slay CC children
